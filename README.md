@@ -3,3 +3,4 @@
 I'm Bob
 I'm peng
 哈哈哈哈 i'm very happy,i'm sins
+play game,sins
